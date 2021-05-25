@@ -1,0 +1,4 @@
+- 👋 Selam, Ben @kyraos.
+- 👀 HTML kod ile ilgileniyorum YouTube kanalı açmayı düşünüyorum.
+- 📫 Benimle beraber iş birliği yapmak isterseniz drknight242@gmail.com mail adresinden ulaşın.
+- ✨ TikTok hesabımıda takip edebilirsiniz : @kyraosboss
